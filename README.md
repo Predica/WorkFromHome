@@ -65,7 +65,7 @@ Recall the power of Thank you! Use it often. Recognize your partner, your kids f
 
 Things like that will happen: Ellen Dissects the Kid-Interrupted BBC Interview. And this is OK. Tell other call participants about your situation. Don't turn your camera off, you don’t have to do that. Mute your mic if you are not a speaker at the moment and your kids are just about to invade Tatooine. Ask for a minute of break if needed. Play with it, don't get frustrated. It is not only you, who struggle this. 
 
-https://youtu.be/dmeBMvGhf1g
+[![assets/wfh-image5.PNG](assets/wfh-image5.PNG)](https://youtu.be/dmeBMvGhf1g)
  
 
 ##### 7. Learning new habits takes time 
