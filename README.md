@@ -144,7 +144,7 @@ we are open to plan our day differently than usual:
 
 This is how I plan to manage it this week [a general idea, before each day I plan the next day in details with my wife] 
 
-![wfh-image3.png](assets/wfh-image3.png)
+![wfh-image3.png](assets/wfh-image3.PNG)
 
 **Just a framework, I accept fact that it may not work that way every day and I am ready to improvise.**
 
