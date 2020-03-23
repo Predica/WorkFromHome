@@ -267,7 +267,7 @@ https://homeschoolhideout.com/educational-shows-on-netflix/
 
 ### Activities together 
 
-[PL CONTENT] 
+#### [PL CONTENT] 
  
 https://www.mamawdomu.pl/2016/11/paluszki.html 
 
@@ -277,9 +277,9 @@ https://mojedziecikreatywnie.pl/
 
 Nauka przez zabawę, twórczość artystyczna i wspieranie rozwoju dziecka. Sprawdźcie pliki do pobrania - mnóstwo rzeczydo wydrukowania i pokolorowania.
 
-[EN CONTENT]
+#### [EN CONTENT]
 
-When you have 2 boys that like the competition, I reccomend paper plane tournament. Movie below shows one of the best-flying paper models, pretty enjoyable when it comes to home challenge.
+When you have 2 boys who like to compete, I reccomend paper plane tournament. Movie below shows one of the best-flying paper models, pretty enjoyable when it comes to home challenge.
 [![assets/wfh-image6.PNG](assets/wfh-image6.PNG)](https://www.youtube.com/watch?v=hrYjK1E5R-M)
 
 ## Other resources
