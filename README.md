@@ -281,7 +281,7 @@ Nauka przez zabawę, twórczość artystyczna i wspieranie rozwoju dziecka. Spra
 #### [EN CONTENT]
 
 When you have 2 boys who like to compete, I reccomend paper plane tournament. Movie below shows one of the best-flying paper models, pretty enjoyable when it comes to home challenge.
-[![assets/wfh-image6.PNG](assets/wfh-image6.PNG)](https://www.youtube.com/watch?v=hrYjK1E5R-M)
+[![assets/wfh-image6.png](assets/wfh-image6.png)](https://www.youtube.com/watch?v=hrYjK1E5R-M)
 
 ## Other resources
 
