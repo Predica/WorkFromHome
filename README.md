@@ -294,6 +294,8 @@ https://docs.google.com/document/d/1W6OIe3ejx89AIWukqAzhLv0RLAyputkhxNWbCTtLifU/
 
 ### March, 31th
 
+![wfh-image7.JPG](assets/wfh-image7.JPG)
+
 It’s March, 31th. You could have expected Spring and some outdoor activities with friends. Guess what, it is snowing and the police outside my house is calling people to stay home.
 
 
