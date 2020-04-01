@@ -4,7 +4,7 @@
 
 ## Below main chapters are covered:
 
-#### [1. Full house: hints for remote working parents](#full-house:-hints-for-remote-working-parents) 
+#### [1. Full house: hints for remote working parents](#full-house-hints-for-remote-working-parents) 
 #### [2. Planning your new scheme](#planning-your-new-scheme)
 #### [3. Activities for kids](#activities-for-kids)
 #### [4. Other resources](#other-resources)
