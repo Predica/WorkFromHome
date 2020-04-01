@@ -8,6 +8,7 @@
 #### 2.	Planning your new scheme
 #### 3. Activities for kids  
 #### 4.	Other resources
+#### 5. Updates
 
 
 ## Full house: hints for remote working parents 
@@ -287,3 +288,46 @@ When you have 2 boys who like to compete, I reccomend paper plane tournament. Mo
 Caroline Hardin (https://twitter.com/carolinescastle) guide: Help my kids are home from school and I need to work
 
 https://docs.google.com/document/d/1W6OIe3ejx89AIWukqAzhLv0RLAyputkhxNWbCTtLifU/edit# 
+
+
+## Updates
+
+### March, 31th
+
+It’s March, 31th. You could have expected Spring and some outdoor activities with friends. Guess what, it is snowing and the police outside my house is calling people to stay home.
+
+
+We are locked down for over 2 weeks now. And you know what? It’s not that bad. Honestly, when we decided to go 100% remote, I was scared by the vision of combined office and kindergarten in
+my living room. This whole planning and digging the net for ideas on how to keep kids occupied I wrote about, was driven by the horror-alike images that I produced in my head. Now I see more positives
+too.
+
+
+* This situation made me do things I normally wouldn’t have done - it is a learning experience (e.g. doing my son a new haircut, thank you youtube for the tutorial!) and new habits arrive (e.g. going to sleep
+earlier, waking up earlier) 
+
+* This situation made me stop doing things I normally would be doing - and I am more than fine with that (e.g. ironing, time wasted in traffic, smoking) 
+
+* I am spending less money and too often I have this thought "oh, I can live without this and that" 
+
+* Limitations triggered my kids' creativity, I just need some few weeks to kick off that too ;) (e.g. they reinvented the way they play - like making their own board game, large scale edition, see photos)
+
+* We spend more time together as a family, and even if it is far from uh… "a quality time" (we simply share the same space doing our own things), there is more of us in our lives now, and lockdown is doing
+something to our relationship, definitely positive (quite opposite that I expected ;)
+
+
+**So, what do I miss?**
+
+
+Definitely a space for myself only (yep, I am this introvert in HR team). I hope this situation will heavily affect real estate market and I will be able to afford a bigger flat next year.
+Having a dedicated room for a home office and my sons having separate rooms - I will be prepared for the next pandemic. I am still looking for hints on the net. I came across a webinar recently on coronavirus lockdown and its impact on relationships. It turned
+out to be disappointing (like many of these things showing up right now, unfortunately), but I took two important things from it, and made it the core of my survival strategy:
+
+* Talk openly about your needs and emotions with the people around you
+* Arrange things the way to have a time and space for yourself only, and let others have it too
+
+It helped me. Last week I added two more things, and my chances for a happy end of the lockdown are increasing since than:
+
+
+* I optimize communication during the day (calls reduced to minimum, brief mails, focus time with muted instant messaging) 
+
+* Our company introduced flexible vacation policy, enabling us to be fully flexible during the day – one day vacation saves me aprox. 2hrs of  work each day I can use for myself or play with kids
